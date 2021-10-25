@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @th3g3ntl3men. I'm currently learning the basics of coding, I'm doing this like a hobby to be distrated. 
